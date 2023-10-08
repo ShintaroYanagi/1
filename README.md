@@ -1,1 +1,1 @@
-I am studying political science at university. The content itself is interesting, but more than that, I was strongly attracted to the study of statistics,In learning through  Certiﬁed Member Analyst of the Securities Analysts Association of Japan. I study statistics, especially in the area of financial engineering.
+21, Keio university, R, Python, piano, alpine skiing, CCMA
