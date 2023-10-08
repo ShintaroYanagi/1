@@ -1,0 +1,1 @@
+I am studying political science at university. The content itself is interesting, but more than that, I was strongly attracted to the study of statistics, which I learned in my Japanese securities analyst certification. I study statistics, especially in the area of financial engineering.
